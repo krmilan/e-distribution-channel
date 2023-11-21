@@ -1,2 +1,2 @@
-# e-distribution-channel
-E-Distribution Channel
+# E-Distribution Channel
+
